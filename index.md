@@ -8,6 +8,17 @@ James Dean ist ziemlich cool als Jett Rink. Zum Schuss ist er ganz schoen betrun
 * ist cool
 * kommt unerwartet zu einer Erbschaft
 * will sich raechen
-* findet Frau vom Boss atraktiv
+* findet Frau vom Boss attraktiv
+
+
+
+
+Leslie Benedict: 
+> Money isn't everything, Jett.
+
+Jett Rink:
+> Not when you've got it.
+
+
 
 
